@@ -8,49 +8,38 @@ To obtain a position that will enable me to use my strong organizational skills,
  
 
 
-Employment History
-
-Education
-
-
-
-
-
-
-
-Hobbies
-
-&
-
-Interests
- 
-
-
+Employment History ::
 
 ITCT	Nagpur, Maharashtra
 Network Analyst and Trainer	March 2016 - June 2017
-PUNJAB TECHNICAL UNIVERSITY.	Graduated
+
+Education ::
+
+PUNJAB TECHNICAL UNIVERSITY.	 Graduated
 Bachelors of Technology	
-Cegep de la Gaspesie et des Iles	Enrolled
+Cegep de la Gaspesie et des Iles  Enrolled
 Mobile Application Development	
 
+Hobbies & Interests ::
 
-Travelling, Reading Books, Outdoor games such as volleyball,football.
-
-Making connections and advancing my links .
+Travelling, Reading Books, Outdoor games such as volleyball,football. Making connections and advancing my links
  
+Professional skills ::	
 
-Profession	Leadership
-al Skills	self motivated,organised ,punctual.
-	ITIL
+Leadership,self motivated,organised ,punctual.
+	
 
-Languages	ENGLISH
+Languages ::
+
+ENGLISH
 HINDI
 PUNJABI
 
 
 
 
-SOCIAL	www.linkedin.com/in/kulwinder-singh-khehra-27463215b
+SOCIAL MEDIA ::
 
-MEDIA
+www.linkedin.com/in/kulwinder-singh-khehra-27463215b 
+
+
